@@ -1,0 +1,1 @@
+# rikopanjiwasan.github.io
